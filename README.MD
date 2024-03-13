@@ -1,5 +1,7 @@
+jdLKDKJ kqllw kkkk
 # MEU REPOSITÓRIO DE AULA GIT
 ## Autor: Thiago M. Silva
+kkkkkkkkkkkkk
 
 <h3>Itens que eu "supostamente" """""aprendi"""""</h3>
 <ul>
